@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Gabe155
+- 👀 I’m interested in Gym
+- 🌱 I’m currently learning Happy
+- 💞️ I’m looking to collaborate on Help Dogs
+- 📫 How to reach me 5 years free at the academy
+- 😄 Pronouns: Bye/Bye
+- ⚡ Fun fact: Next year I'm going to use a pump
